@@ -38,7 +38,7 @@ Enjoy an unmatched viewing experience with the Abdullah Abbas IPTV app, the most
 • Prevent screen sleep during viewing.
 • Regular updates to ensure stable performance.
 
-🔹 Version: 2026.05.02.01  
+🔹 Version: 2026.05.08.01  
 🔹 Developer: Abdullah Abbas Mazloom  
 
 🔹 A smooth and hassle-free experience… Download the app now and start watching!
