@@ -1,4 +1,4 @@
-<img width="1600" height="1600" alt="Abdullah Abbas IPTV 2026 05 09 01" src="https://github.com/user-attachments/assets/11d1b3f0-2b2e-4ff9-91a5-ad6f6d83d852" />📺 Abdullah Abbas IPTV App – Smart Viewing Experience (2026 Edition)
+📺 Abdullah Abbas IPTV App – Smart Viewing Experience (2026 Edition)
 
 Enjoy an unmatched viewing experience with the Abdullah Abbas IPTV app, the most advanced and flexible player for IPTV channels. This app is designed to provide speed, ease of use, and full control over your favorite content, whether you are using your mobile phone or a smart TV screen.
 
